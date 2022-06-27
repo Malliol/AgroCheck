@@ -1,5 +1,5 @@
 # Команда <Квинтет> представляет
 
-![image](https://user-images.githubusercontent.com/90931685/175909904-4c93cfa3-82e7-4699-84ae-c51279db6382.png)
+![image](https://user-images.githubusercontent.com/90931685/175912670-b562d103-da52-4157-84e5-431f0591f3bd.png)
 
 ______________________________
