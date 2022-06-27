@@ -1,3 +1,4 @@
-![image](https://user-images.githubusercontent.com/90931685/175899876-7dea0b74-0d50-4c4f-9091-09971dc5483f.png)
+Команда <Квинтет> представляет
+![image](https://user-images.githubusercontent.com/90931685/175900113-d7e819c1-ffd1-42c2-a5ef-2ff2722f5794.png)
 
 ______________________________
